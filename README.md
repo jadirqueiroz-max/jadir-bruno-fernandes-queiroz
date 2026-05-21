@@ -1,3 +1,3 @@
 # jadir-bruno-fernandes-queiroz
 Blooket gold
-500
+500 gold
